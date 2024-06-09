@@ -1,5 +1,5 @@
 
-**About Me **
+**About Me**
 
 As a student at the University of Applied Sciences, Schmalkalden, and an aspiring cybersecurity analyst, I am dedicated to building my career in cybersecurity. I am focused on continuous learning and actively stepping into the world of cybersecurity to make a meaningful impact in the field.
 **Updates soon**
